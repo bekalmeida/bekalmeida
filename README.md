@@ -1,0 +1,7 @@
+ola chat, prazer rebeka 💞️
+ 👀
+
+ 📫
+😄
+⚡ 
+
